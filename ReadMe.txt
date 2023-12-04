@@ -1,0 +1,1 @@
+Refer to the google doc for list of new things that you learnt.
